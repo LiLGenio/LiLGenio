@@ -37,7 +37,7 @@ I'm currently diving into:
 Stay tuned for updates as I level up my skills!
 
 ## 📫 Let's Connect
-- Twitter: [@WolMt92782](https://twitter.com/WolMt92782))
+- Twitter: [@WolMt92782](https://twitter.com/WolMt92782)
 - Email: [erroniochuro@gmail.com](mailto:erroniochuro@gmail.com)
 
 Feel free to reach out if you'd like to collaborate, share insights, or just have a friendly chat.
